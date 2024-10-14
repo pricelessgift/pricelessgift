@@ -2,7 +2,7 @@
 - 👀 I’m interested in bringing codes to life 
 - 🌱 I’m currently on front end development
 - 💞️ I’m looking to collaborate on mobile app development
-- 📫 How to reach me on ednaelvis178@gmail.com
+- 📫 How to reach me on mmesomadivineg@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: We can all grow together...
 
